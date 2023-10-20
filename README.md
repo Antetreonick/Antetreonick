@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Antetreonick
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Math
+- 💞️ I’m looking to collaborate on THE BAD SERVER
+- 📫 How to reach me no way
